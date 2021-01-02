@@ -1,0 +1,1 @@
+You are NOT granted any rights to the source code and no one may reproduce, distribute, or create derivative works from this work without explicit written permission from the author.
